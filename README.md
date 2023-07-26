@@ -1,1 +1,1 @@
-soon you can get awesome website 
+soon you can get an awesome website 
